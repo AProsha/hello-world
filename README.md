@@ -2,4 +2,4 @@
 
 Hi everyone,
 
-I like apples and snow.
+I like apples and snow.It's raining
